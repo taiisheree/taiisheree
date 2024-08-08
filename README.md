@@ -2,7 +2,7 @@
 
 ### Boas vindas ao meu perfil 💝
 
-Meu nome é Tainá Isabelle Amari Rial 
+Meu nome é Tainá Isabelle Amaro Rial 
 
 - Estou estudando na [Alura](https://www.alura.com.br)
 - Estou me desenvolvendo na liguangem javascript
