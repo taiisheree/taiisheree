@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/bb9b56d9-939c-4e7c-9459-69cc0c40c8d0)
 
-### Bem vinde ao meu perfil 💝
+### Boas vindas ao meu perfil 💝
 
 Meu nome é Tainá Isabelle Amari Rial 
 
